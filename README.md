@@ -1,0 +1,2 @@
+# AP_Gen_10_Legion_Pro_7i_OLED_GDN_728x90_SMF_2
+AP_Gen_10_Legion_Pro_7i_OLED_GDN_728x90_SMF_2
